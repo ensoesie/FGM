@@ -1,3 +1,3 @@
-# Welcome to the FGM Page
+# Female Genital Mutilation or Cutting 
 
 Using digital data to study trends in FGM ...
