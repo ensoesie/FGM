@@ -1,3 +1,3 @@
-# FGM
+# Welcome to the FGM Page
 
 Using digital data to study trends in FGM ...
